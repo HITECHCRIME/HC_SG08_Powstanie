@@ -25,7 +25,7 @@ to już wasza pora ruchu 8
 ciągnij mnie za reke, my na czele 10
 inne suki są w potrzebie 8
 mnie to jebie, preferuje ciebie ej
-
+(szczerość sobie - scream)
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
