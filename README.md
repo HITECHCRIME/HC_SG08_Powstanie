@@ -14,27 +14,32 @@ slower intro
 co ty myslisz to nie proza 8
 wszyscy literaci prysli 8
 ale mi nie szkoda, taka kłoda 10
-nie powinie się nam noga 8
+nie powinie nam się noga 8
 my to raczej nowa sfora 8
+
 w tyle usadzimy chujów 9
 ułożymy wieżę z trupów 9
 
 suki i skurwiele mielę 8
-to już wasza pora zuchu 8
+to już wasza pora ruchu 8
 ciągnij za ma reke, my na czele 10
 inne suki są w potrzebie 8
 mnie to jebie, preferuje ciebie ej
+
 szczerosc sobie wepchnij 6
-pociągnij sobie moje myśli 9
+pociągnij me myśli 9
 
 my to bardziej nowa szkoła
+zreflektuj sie nie wytknij
+w mojej glowie milosc, z zewnątrz demon
+w twojej glowie nienawisc to forma misji
+nie ciagnij tego zjebie
+koniec transmisji
 
-
-Zreflektuj sie nie wytknij
 
 xxx
 
-Nie ciagnij tego zjebie
+
 
 
 wjedź w ten bit hankozaur,
