@@ -22,7 +22,7 @@ ułożymy wieżę z trupów 9
 
 suki i skurwiele mielę 8
 to już wasza pora ruchu 8
-ciągnij za ma reke, my na czele 10
+ciągnij mnie za reke, my na czele 10
 inne suki są w potrzebie 8
 mnie to jebie, preferuje ciebie ej
 szczerość sobie
