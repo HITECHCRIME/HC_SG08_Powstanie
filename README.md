@@ -36,10 +36,19 @@ my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
+moją misją dystans do emocji
+czasu szkoda, nie poddawaj się tradycji
 
+bez pomysłu bez ambicji
+to nie koniec tej transmisji
+
+x
+x
+x
+x
 
 dajesz zreflektuj sie nie wytknij
-bez pomysłu bez ambicji
+
 nie odwracaj duszy za bitki
 wszystko będzie aż zbyt dobrze,
 
@@ -47,7 +56,7 @@ co mam dodać, nie przerywaj tej transmisji
 nie poddawaj się ambicji
 oddanie, sprzedanie (?)
 nie ciagnij tego zjebie
-koniec transmisji
+
 
 
 xxx
