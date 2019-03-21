@@ -29,10 +29,13 @@ mnie to jebie, preferuje ciebie ej
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
-my to bardziej nowa szkoła
+my to bardziej świeża szkoła
 zreflektuj sie nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
+oddanie, sprzedanie (?)
+
+
 nie ciagnij tego zjebie
 koniec transmisji
 
