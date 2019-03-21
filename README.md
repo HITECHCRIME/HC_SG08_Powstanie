@@ -16,7 +16,7 @@ wszyscy literaci prysli 8
 ale mi nie szkoda, taka kłoda 10
 nie powinie nam się noga 8
 my to raczej nowa sfora 8
-
+w tyle usadzimy
 w tyle usadzimy chujów 9
 ułożymy wieżę z trupów 9
 
@@ -25,7 +25,7 @@ to już wasza pora ruchu 8
 ciągnij za ma reke, my na czele 10
 inne suki są w potrzebie 8
 mnie to jebie, preferuje ciebie ej
-
+szczerość sobie
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
