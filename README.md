@@ -11,6 +11,48 @@ https://www.youtube.com/watch?v=KxvH-9LuHHQ this one
 
 slower intro
 
+[CHORUS]
+co ty myslisz to nie proza 8
+wszyscy literaci prysli 8
+_ale mi nie szkoda_, taka kłoda 10
+nie powinie nam się noga 8
+my to raczej _nowa sfora_ 8
+
+w tyle usadzimy chujów 9
+ułożymy wieżę z trupów ye
+
+suki i skurwiele mielę 8
+to już _wasza pora_ ruchu 8
+ciągnij mnie za reke, _my na czele_ 10
+_inne suki są w potrzebie_ 8
+mnie to jebie, _preferuje ciebie ej_
+
+(szczerość sobie - scream)
+szczerosc sobie wepchnij 6
+pociągnij me myśli 9
+
+[VERSE]
+my to bardziej świeża szkoła
+zreflektuj sie i nie wytknij
+w mojej glowie milosc, z zewnątrz demon
+w twojej glowie nienawisc to forma misji
+
+
+dajesz zreflektuj sie nie wytknij
+bez pomysłu bez ambicji
+nie odwracaj duszy za bitki
+wszystko będzie aż zbyt dobrze,
+
+co mam dodać, nie przerywaj tej transmisji
+nie poddawaj się ambicji
+oddanie, sprzedanie (?)
+nie ciagnij tego zjebie
+koniec transmisji
+
+
+xxx
+
+[CHORUS]
 co ty myslisz to nie proza 8
 wszyscy literaci prysli 8
 _ale mi nie szkoda_, taka kłoda 10
@@ -30,28 +72,8 @@ mnie to jebie, _preferuje ciebie ej_
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
-my to bardziej świeża szkoła
-zreflektuj sie nie wytknij
-w mojej glowie milosc, z zewnątrz demon
-w twojej glowie nienawisc to forma misji
-bez pomysłu bez ambicji
-?
-co mam dodać, nie przerywaj tej transmisji
-nie odwracaj duszy (wszystko będzie dobrze)
-nie poddawaj się ambicji
 
-
-oddanie, sprzedanie (?)
-
-
-nie ciagnij tego zjebie
-koniec transmisji
-
-
-xxx
-
-
-
+------------------
 
 wjedź w ten bit hankozaur,
 ciociacaro spina dupę 
