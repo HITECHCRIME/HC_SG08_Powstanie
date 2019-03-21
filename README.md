@@ -1,4 +1,4 @@
-# MOTHNODE_ UPRISING (PROD. NORBI)
+# MOTHNODE_ UPRISING (PROD. NORBI) POWSTANIE
 Hitech Crime Single 'Uprising'
 
 Trapper beat
@@ -6,6 +6,8 @@ Trapper beat
 https://www.youtube.com/watch?v=M8-Pyr1P9Ss KUDOS
 Norbi
 https://www.youtube.com/watch?v=dWEiD3r598g REVENGE
+
+https://www.youtube.com/watch?v=KxvH-9LuHHQ this one
 
 slower intro
 
@@ -21,7 +23,7 @@ suki i skurwiele mielę 8
 to już wasza pora zuchu 8
 ciągnij za ma reke, my na czele 10
 inne suki są w potrzebie 8
-mnie to jebie, preferuje ciebie
+mnie to jebie, preferuje ciebie ej
 szczerosc sobie wepchnij 6
 pociągnij sobie moje myśli 9
 
