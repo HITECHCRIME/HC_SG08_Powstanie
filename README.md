@@ -33,6 +33,7 @@ my to bardziej świeża szkoła
 zreflektuj sie nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
+?
 co mam dodać, nie przerywaj tej transmisji
 nie odwracaj duszy (wszystko będzie dobrze)
 nie poddawaj się ambicji
