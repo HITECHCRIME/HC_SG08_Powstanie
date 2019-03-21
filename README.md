@@ -13,18 +13,19 @@ slower intro
 
 co ty myslisz to nie proza 8
 wszyscy literaci prysli 8
-ale mi nie szkoda, taka kłoda 10
+_ale mi nie szkoda_, taka kłoda 10
 nie powinie nam się noga 8
-my to raczej nowa sfora 8
+my to raczej _nowa sfora_ 8
 
 w tyle usadzimy chujów 9
 ułożymy wieżę z trupów 9
 
 suki i skurwiele mielę 8
-to już wasza pora ruchu 8
-ciągnij mnie za reke, my na czele 10
-inne suki są w potrzebie 8
-mnie to jebie, preferuje ciebie ej
+to już _wasza pora_ ruchu 8
+ciągnij mnie za reke, _my na czele_ 10
+_inne suki są w potrzebie_ 8
+mnie to jebie, _preferuje ciebie ej_
+
 (szczerość sobie - scream)
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
@@ -33,6 +34,7 @@ my to bardziej świeża szkoła
 zreflektuj sie nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
+bez pomysłu bez ambicji
 ?
 co mam dodać, nie przerywaj tej transmisji
 nie odwracaj duszy (wszystko będzie dobrze)
