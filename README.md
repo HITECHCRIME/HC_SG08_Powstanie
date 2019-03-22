@@ -46,6 +46,7 @@ x
 x
 x
 x
+x
 
 dajesz zreflektuj sie nie wytknij
 
