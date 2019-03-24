@@ -83,6 +83,8 @@ szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
 
+
+
 ------------------
 
 wjedź w ten bit hankozaur,
