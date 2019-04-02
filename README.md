@@ -11,6 +11,10 @@ https://www.youtube.com/watch?v=KxvH-9LuHHQ this one
 
 slower intro
 
+ey ya
+to jest powstanie
+fucking uprising
+
 [CHORUS]
 co ty myslisz to nie proza 8
 wszyscy literaci prysli 8
@@ -36,8 +40,8 @@ my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
-moją misją dystans do emocji
-czasu szkoda, nie poddawaj się tradycji
+moją misją dystans do emocji czasu szkoda
+nie poddawaj się tradycji
 
 bez pomysłu bez ambicji
 to nie koniec tej transmisji
