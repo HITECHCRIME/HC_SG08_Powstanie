@@ -43,6 +43,7 @@ my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
+
 ta a moją misją dystans do emocji czasu szkoda
 nie poddawaj się tradycji
 
@@ -57,12 +58,23 @@ nie poddawaj się ambicji
 oddanie, sprzedanie (?)
 nie ciagnij tego zjebie
 
-
-
 konasz w głębi 
 bezpośredni kontakt
 nasza cicha horda 
 da ci lśnienie
+
+to mityczny kod 
+w twej skórze
+czujesz jego zmienne
+kiedy w sen zapadasz
+
+okrąg widzę, senne mary
+kodu wstęgi, świat na nowo zbudowany
+widzisz w przód - jesteś nami 
+czujesz zew - nie daj się usadzić
+nie daj się zamęczyć
+
+
 
 
 
@@ -85,6 +97,24 @@ mnie to jebie, _preferuje ciebie ej_
 (szczerość sobie - scream)
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
+
+[VERSE
+
+konasz w głębi 
+bezpośredni kontakt
+nasza cicha horda 
+da ci lśnienie - nowe drogi
+
+to mityczny kod 
+w twej skórze
+czujesz jego zmienne
+kiedy w sen zapadasz
+
+okrąg widzę, senne mary
+kodu wstęgi, świat na nowo zbudowany
+widzisz w przód - jesteś nami 
+czujesz zew - nie daj się usadzić
+nie daj się zamęczyć - trzymaj gardę
 
 
 
