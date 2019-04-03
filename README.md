@@ -48,15 +48,7 @@ nie poddawaj się tradycji
 
 bez pomysłu bez ambicji
 to nie koniec tej transmisji
-
-x
-x
-x
-x
-x
-
 dajesz zreflektuj sie nie wytknij
-
 nie odwracaj duszy za bitki
 wszystko będzie aż zbyt dobrze,
 
@@ -67,7 +59,12 @@ nie ciagnij tego zjebie
 
 
 
-xxx
+konasz w głębi 
+bezpośredni kontakt
+nasza cicha horda 
+da ci lśnienie
+
+
 
 [CHORUS]
 co ty myslisz to nie proza 8
