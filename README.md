@@ -9,10 +9,13 @@ https://www.youtube.com/watch?v=dWEiD3r598g REVENGE
 
 https://www.youtube.com/watch?v=KxvH-9LuHHQ this one
 
-slower intro
+don't show the face - hacker swag theme
+
+mothnode
+connected
 
 ey ya
-to jest powstanie
+to jest powstanie // glitches to (translingual theme)
 fucking uprising
 
 [CHORUS]
@@ -40,7 +43,7 @@ my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
-moją misją dystans do emocji czasu szkoda
+ta a moją misją dystans do emocji czasu szkoda
 nie poddawaj się tradycji
 
 bez pomysłu bez ambicji
