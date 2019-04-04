@@ -73,6 +73,7 @@ kodu wstęgi, świat na nowo zbudowany
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
 nie daj się zamęczyć
+nie toleruj zdrady
 
 
 
@@ -103,18 +104,26 @@ pociągnij me myśli 9
 konasz w głębi 
 bezpośredni kontakt
 nasza cicha horda 
-da ci lśnienie - nowe drogi
+da ci lśnienie - nowe drogi ey
 
 to mityczny kod 
 w twej skórze
 czujesz jego zmienne
-kiedy w sen zapadasz
-
+kiedy w sen zapadam, w czerni
 okrąg widzę, senne mary
-kodu wstęgi, świat na nowo zbudowany
+kodu wstęgi, świat na nowo zbudowany ey
+
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
 nie daj się zamęczyć - trzymaj gardę
+nie toleruj zdrady
+dostęp utnij, 
+szukaj swojej prawdy
+złoto to nie swag,
+to wiedza i insighty
+a nie zwady
+
+
 
 
 
