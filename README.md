@@ -99,19 +99,23 @@ mnie to jebie, _preferuje ciebie ej_
 szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
-[VERSE
+[VERSE2]
 
 konasz w głębi 
 bezpośredni kontakt
 nasza cicha horda 
-da ci lśnienie - nowe drogi ey
+dam ci lśnienie - nowe drogi ey
 
 to mityczny kod 
 w twej skórze
 czujesz jego zmienne
+ten magnetyzm, 
 kiedy w sen zapadam, w czerni
-okrąg widzę, senne mary
-kodu wstęgi, świat na nowo zbudowany ey
+znowu okrąg widzę, 
+
+senne mary, kodu wstęgi
+dzień tak szybko się oddala
+świat na nowo zbudowany ey
 
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
@@ -119,14 +123,13 @@ nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 dostęp utnij, 
 szukaj swojej prawdy
+
+(quiet part)
 złoto to nie swag,
-to wiedza i insighty
-a nie zwady
-
-
-
-
-
+dla nielicznych to 
+wiedza i insighty
+a nie zwady, to kontakty
+miej w graści swe układy
 
 ------------------
 
