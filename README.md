@@ -107,14 +107,13 @@ nasza cicha horda
 dam ci lśnienie - nowe drogi ey
 
 to mityczny kod 
-w twej skórze
-czujesz jego zmienne
-ten magnetyzm, 
-kiedy w sen zapadam, w czerni
-znowu okrąg widzę, 
+w twej skórze 
 
-senne mary, kodu wstęgi
-dzień tak szybko się oddala
+czujesz jego zmienne, ten magnetyzm, 
+kiedy w sen zapadam, w czerni znowu okrąg widzę 
+
+dziennie mary, kodu wstęgi
+noc tak szybko się oddala
 świat na nowo zbudowany ey
 
 widzisz w przód - jesteś nami 
@@ -122,12 +121,14 @@ czujesz zew - nie daj się usadzić
 nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 dostęp utnij, 
-szukaj swojej prawdy
+szukaj prawdy
+na własną rękę 
+(własnym światłem)
 
 (quiet part)
 złoto to nie swag,
-dla nielicznych to 
-wiedza i insighty
+tylko dla nielicznych to 
+są wiedza i insighty
 a nie zwady, to kontakty
 miej w graści swe układy
 
