@@ -75,10 +75,6 @@ czujesz zew - nie daj się usadzić
 nie daj się zamęczyć
 nie toleruj zdrady
 
-
-
-
-
 [CHORUS]
 co ty myslisz to nie proza 8
 wszyscy literaci prysli 8
