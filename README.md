@@ -43,20 +43,8 @@ my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
-
 ta a moją misją dystans do emocji czasu szkoda
 nie poddawaj się tradycji
-
-bez pomysłu bez ambicji
-to nie koniec tej transmisji
-dajesz zreflektuj sie nie wytknij
-nie odwracaj duszy za bitki
-wszystko będzie aż zbyt dobrze,
-
-co mam dodać, nie przerywaj tej transmisji
-nie poddawaj się ambicji
-oddanie, sprzedanie (?)
-nie ciagnij tego zjebie
 
 konasz w głębi 
 bezpośredni kontakt
@@ -69,11 +57,22 @@ czujesz jego zmienne
 kiedy w sen zapadasz
 
 okrąg widzę, senne mary
-kodu wstęgi, świat na nowo zbudowany
+kodu wstęgi, świat na nowo zbudowan
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
 nie daj się zamęczyć
 nie toleruj zdrady
+
+co mam dodać, nie przerywaj tej transmisji
+nie poddawaj się ambicji
+oddanie, sprzedanie (?)
+nie ciagnij tego zjebie
+
+bez pomysłu bez ambicji
+to nie koniec tej transmisji
+dajesz zreflektuj sie nie wytknij
+nie odwracaj duszy za bitki
+wszystko będzie aż zbyt dobrze,
 
 [CHORUS]
 co ty myslisz to nie proza 8
