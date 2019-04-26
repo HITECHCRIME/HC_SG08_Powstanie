@@ -52,8 +52,8 @@ yeah
 
 to mityczny kod w twej skórze 
 konasz w głębi bezpośredni (to jest) kontakt
-cicha nasza horda da ci lśnienie - (nowe drogi ey)
-
+cicha nasza hordaaa - da ci lśnienie - 
+(nowe drogi ey)
 w czerni znowu okrąg widzę 
 dziennie mary, kodu wstęgi
 noc tak szybko się oddala
