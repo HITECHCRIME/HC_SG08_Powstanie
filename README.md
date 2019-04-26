@@ -43,30 +43,38 @@ szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
 [VERSE]
-my to bardziej świeża szkoła
-zreflektuj sie i nie wytknij
-w mojej glowie milosc, z zewnątrz demon
-w twojej glowie nienawisc to forma misji
-
-konasz w głębi 
-bezpośredni kontakt
-nasza cicha horda 
-da ci lśnienie - nowe drogi ey
+my to bardziej 
+świeża szkoła
+zreflektuj sie 
+i nie wytknij
+w mojej glowie 
+milosc, z zewnątrz 
+demon w twojej glowie 
+nienawisc to forma misji
 
 to mityczny kod 
 w twej skórze 
 
-czujesz jego zmienne, ten magnetyzm, 
-kiedy w sen zapadam, w czerni znowu okrąg widzę 
+konasz w głębi 
+bezpośredni kontakt
+cicha nasza horda 
+da ci lśnienie - (nowe drogi ey)
 
+czujesz jego zmienne, ten magnetyzm, 
+kiedy w sen zapadam, 
+
+w czerni znowu okrąg widzę 
 dziennie mary, kodu wstęgi
 noc tak szybko się oddala
 świat na nowo zbudowany ey
 
-widzisz w przód - jesteś (z) nami 
-czujesz zew - nie daj się usadzić
+widzisz w przód - 
+jesteś (z) nami 
+czujesz zew - 
+nie daj się usadzić (ustawić)
 
-nie daj się zamęczyć - trzymaj gardę
+nie daj się zamęczyć - 
+trzymaj gardę
 nie toleruj zdrady
 
 znasz układy 
