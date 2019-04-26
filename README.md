@@ -52,16 +52,16 @@ nasza cicha horda
 da ci lśnienie
 to mityczny kod 
 w twej skórze
-
 czujesz jego zmienne
 kiedy w sen zapadasz
-okrąg widzę, senne mary
+okrąg widzę, 
 
-kodu wstęgi, świat na nowo zbudowany
+senne mary, kodu wstęgi, świat na nowo zbudowany
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
 nie daj się zamęczyć
 nie toleruj zdrady
+rym do głębi
 
 co mam dodać, nie przerywaj tej transmisji
 nie poddawaj się ambicji
