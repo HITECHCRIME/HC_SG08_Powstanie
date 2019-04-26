@@ -53,39 +53,32 @@ yeah
 to mityczny kod w twej skórze 
 konasz w głębi bezpośredni (to jest) kontakt
 cicha nasza hordaaa - da ci lśnienie - 
-(nowe drogi ey)
-w czerni znowu okrąg widzę 
-dziennie mary, kodu wstęgi
+
+(nowe drogi) nowe drogi
+(dziennie mary) dziennie mary 
+(kodu wstęgi) kodu wstęgi 
+
 noc tak szybko się oddala
-świat na nowo zbudowany ey
+świat na nowo zbudowany 
+czuję zmienne
 
-czuję jego zmienne, ten magnetyzm, 
-kiedy w sen zapadam -  x x
+ten magnetyzm, kiedy w sen 
+zapadam w czerni znowu okrąg widzę 
 
-widzisz w przód - 
-jesteś (z) nami 
-czujesz zew - 
-nie daj(esz) się usadzić (ustawić)
+widzisz w przód - jesteś (z) nami 
+czujesz zew - nie daj(esz) się usadzić (ustawić)
 
-nie daj się zamęczyć - 
-trzymaj gardę
+nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 
-znasz układy 
-swoje miejsca
-masz zasady
-racjonalne masz 
-paradygmaty
+znasz układy swoje miejsca
+masz zasady racjonalne masz 
+paradygmaty 
 masz 
 
-dostęp utnij, 
-szukaj prawdy
-na własną rękę 
-(własnym światłem)
-
+dostęp utnij, szukaj prawdy
+na własną rękę (własnym światłem)
 nie daj się zamęczyć
-
-nie toleruj zdrady
 
 [CHORUS]
 co ty myslisz to nie proza 8
