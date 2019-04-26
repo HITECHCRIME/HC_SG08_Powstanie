@@ -45,25 +45,33 @@ w mojej glowie milosc, z zewnątrz demon
 w twojej glowie 
 
 nienawisc to forma misji
+
 ta a moją misją dystans do emocji czasu szkoda
 nie poddawaj się tradycji
 
-konasz w głębi 
-bezpośredni kontakt
-nasza cicha horda 
-da ci lśnienie
 to mityczny kod 
 w twej skórze
 czujesz jego zmienne
 kiedy w sen zapadasz
 okrąg widzę, 
 
-senne mary, kodu wstęgi, świat na nowo zbudowany
+konasz w głębi 
+bezpośredni kontakt
+nasza cicha horda 
+da ci lśnienie
+senne mary, kodu wstęgi
+świat na nowo zbudowany
+
 widzisz w przód - jesteś nami 
 czujesz zew - nie daj się usadzić
+
 nie daj się zamęczyć
 nie toleruj zdrady
-rym do głębi
+masz układy 
+swoje miejsca
+masz zasady
+racjonalne masz układy
+
 
 co mam dodać, nie przerywaj tej transmisji
 nie poddawaj się ambicji
