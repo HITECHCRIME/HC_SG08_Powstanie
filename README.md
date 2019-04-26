@@ -42,23 +42,16 @@ pociągnij me myśli 9
 my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
-w twojej glowie 
+w twojej glowie nienawisc to forma misji
 
-nienawisc to forma misji
-
-ta a moją misją dystans do emocji czasu szkoda
-nie poddawaj się tradycji
-
-to mityczny kod 
-w twej skórze
-czujesz jego zmienne
-kiedy w sen zapadasz
-okrąg widzę, 
-
+to mityczny kod w twej skórze 
+czujesz jego zmienne kiedy w sen zapadasz
+okrąg widzę 
 konasz w głębi 
 bezpośredni kontakt
 nasza cicha horda 
 da ci lśnienie
+
 senne mary, kodu wstęgi
 świat na nowo zbudowany
 
@@ -66,11 +59,15 @@ widzisz w przód - jesteś nami
 czujesz zew - nie daj się usadzić
 
 nie daj się zamęczyć
+
 nie toleruj zdrady
-masz układy 
+
+znasz układy 
 swoje miejsca
 masz zasady
-racjonalne masz układy
+racjonalne masz 
+paradygmaty
+masz
 
 
 co mam dodać, nie przerywaj tej transmisji
