@@ -56,7 +56,7 @@ to mityczny kod
 w twej skórze 
 
 konasz w głębi 
-bezpośredni kontakt
+bezpośredni (to jest) kontakt
 cicha nasza horda 
 da ci lśnienie - (nowe drogi ey)
 
