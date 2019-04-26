@@ -11,6 +11,10 @@ https://www.youtube.com/watch?v=KxvH-9LuHHQ this one
 
 don't show the face - hacker swag theme
 
+## Lyrics
+
+```
+
 mothnode
 connected
 
@@ -44,22 +48,25 @@ zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
 w twojej glowie nienawisc to forma misji
 
-to mityczny kod w twej skórze 
-czujesz jego zmienne kiedy w sen zapadasz
-okrąg widzę 
 konasz w głębi 
 bezpośredni kontakt
 nasza cicha horda 
-da ci lśnienie
+da ci lśnienie - nowe drogi ey
 
-senne mary, kodu wstęgi
-świat na nowo zbudowany
+to mityczny kod 
+w twej skórze 
 
-widzisz w przód - jesteś nami 
+czujesz jego zmienne, ten magnetyzm, 
+kiedy w sen zapadam, w czerni znowu okrąg widzę 
+
+dziennie mary, kodu wstęgi
+noc tak szybko się oddala
+świat na nowo zbudowany ey
+
+widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj się usadzić
 
-nie daj się zamęczyć
-
+nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 
 znasz układy 
@@ -67,19 +74,18 @@ swoje miejsca
 masz zasady
 racjonalne masz 
 paradygmaty
-masz
+masz 
+
+dostęp utnij, 
+szukaj prawdy
+na własną rękę 
+(własnym światłem)
+
+nie daj się zamęczyć
+
+nie toleruj zdrady
 
 
-co mam dodać, nie przerywaj tej transmisji
-nie poddawaj się ambicji
-oddanie, sprzedanie (?)
-nie ciagnij tego zjebie
-
-bez pomysłu bez ambicji
-to nie koniec tej transmisji
-dajesz zreflektuj sie nie wytknij
-nie odwracaj duszy za bitki
-wszystko będzie aż zbyt dobrze,
 
 [CHORUS]
 co ty myslisz to nie proza 8
@@ -103,29 +109,9 @@ pociągnij me myśli 9
 
 [VERSE2]
 
-konasz w głębi 
-bezpośredni kontakt
-nasza cicha horda 
-dam ci lśnienie - nowe drogi ey
 
-to mityczny kod 
-w twej skórze 
 
-czujesz jego zmienne, ten magnetyzm, 
-kiedy w sen zapadam, w czerni znowu okrąg widzę 
 
-dziennie mary, kodu wstęgi
-noc tak szybko się oddala
-świat na nowo zbudowany ey
-
-widzisz w przód - jesteś nami 
-czujesz zew - nie daj się usadzić
-nie daj się zamęczyć - trzymaj gardę
-nie toleruj zdrady
-dostęp utnij, 
-szukaj prawdy
-na własną rękę 
-(własnym światłem)
 
 (quiet part)
 złoto to nie swag,
@@ -134,7 +120,45 @@ są wiedza i insighty
 a nie zwady, to kontakty
 miej w graści swe układy
 
+```
+
 ------------------
+
+
+my to bardziej świeża szkoła
+zreflektuj sie i nie wytknij
+w mojej glowie milosc, z zewnątrz demon
+w twojej glowie nienawisc to forma misji
+
+to mityczny kod w twej skórze 
+czujesz jego zmienne kiedy w sen zapadasz
+okrąg widzę 
+konasz w głębi 
+bezpośredni kontakt
+nasza cicha horda 
+da ci lśnienie
+
+senne mary, kodu wstęgi
+świat na nowo zbudowany
+
+widzisz w przód - jesteś nami 
+czujesz zew - nie daj się usadzić
+
+
+
+
+co mam dodać, nie przerywaj tej transmisji
+nie poddawaj się ambicji
+oddanie, sprzedanie (?)
+nie ciagnij tego zjebie
+
+bez pomysłu bez ambicji
+to nie koniec tej transmisji
+dajesz zreflektuj sie nie wytknij
+nie odwracaj duszy za bitki
+wszystko będzie aż zbyt dobrze,
+
+-----
 
 wjedź w ten bit hankozaur,
 ciociacaro spina dupę 
