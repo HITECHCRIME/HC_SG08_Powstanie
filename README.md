@@ -42,7 +42,9 @@ pociągnij me myśli 9
 my to bardziej świeża szkoła
 zreflektuj sie i nie wytknij
 w mojej glowie milosc, z zewnątrz demon
-w twojej glowie nienawisc to forma misji
+w twojej glowie 
+
+nienawisc to forma misji
 ta a moją misją dystans do emocji czasu szkoda
 nie poddawaj się tradycji
 
