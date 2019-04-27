@@ -62,8 +62,10 @@ noc tak szybko się oddala
 świat na nowo zbudowany 
 czuję zmienne
 
-ten magnetyzm, kiedy w sen 
-zapadam w czerni znowu okrąg widzę 
+ten magnetyzm, 
+kiedy w sen 
+zapadam w czerni 
+znowu okrąg widzę 
 
 widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj(esz) się usadzić (ustawić)
