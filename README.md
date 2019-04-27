@@ -50,13 +50,13 @@ demon w twojej glowie nienawisc
 to forma misji
 yeah
 
-to mityczny kod w twej skórze 
-konasz w głębi bezpośredni (to jest) kontakt
-cicha nasza hordaaa - da ci lśnienie - 
-
 (nowe drogi) nowe drogi
 (dziennie mary) dziennie mary 
 (kodu wstęgi) kodu wstęgi 
+
+to mityczny kod w twej skórze 
+konasz w głębi bezpośredni (to jest) kontakt
+cicha nasza hordaaa - da ci lśnienie - 
 
 noc tak szybko się oddala
 świat na nowo zbudowany 
