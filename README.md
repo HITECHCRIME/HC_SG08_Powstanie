@@ -58,7 +58,7 @@ cicha nasza hordaaa - da ci lśnienie -
 (kodu wstęgi) kodu wstęgi 
 
 noc tak szybko się oddala 
-świat na nowo zbudowany aye
+świat na nowo zbudowany ya
 
 czuję zmienne, czujnie bierny 
 ten magnetyzm kiedy w sen zapadam 
