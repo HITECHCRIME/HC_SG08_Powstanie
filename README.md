@@ -64,23 +64,23 @@ czuję zmienne, czujnie bierny
 ten magnetyzm kiedy w sen zapadam 
 w czerni znowu okrąg widzę 
 
-te układy znasz swe miejsca 
-paradygmaty, racjonalne masz zasady
+dostęp utnę, szukam prawdy
+własnym sortem, na własną rękę,  
+(własnym światłem), 
+
+nie dam się zamęczyć
+te układy znam swe miejsca, aktywne 
+paradygmaty, racjonalne me zasady
 to powstanie - traci brzemię
 
-widzisz w przód - jesteś (z) nami 
-czujesz zew - nie daj(esz) się usadzić (ustawić)
-
-nie daj(esz) się usadzić (ustawić)
+widzisz w przód - jesteś (z) nami (widzę w przód - jesteś z nami)
+czujesz zew - nie daj(esz) się usadzić (ustawić) (czuję zew - nie dam się usadzić
 
 nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 
-
-
-dostęp utnij, szukaj prawdy
-na własną rękę (własnym światłem)
-nie daj się zamęczyć
+nie daj się usadzić
+to powstanie
 
 [CHORUS]
 co ty myslisz to nie proza 8
@@ -114,6 +114,7 @@ tylko dla nielicznych to
 są wiedza i insighty
 a nie zwady, to kontakty
 miej w graści swe układy
+kontra kontrakt
 
 ```
 
