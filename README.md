@@ -65,7 +65,7 @@ w czerni znowu okrąg widzę
 
 te układy znasz swe miejsca 
 paradygmaty, racjonalne masz zasady
-w tym powstaniu - traci brzemię
+to powstanie - traci brzemię
 
 widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj(esz) się usadzić (ustawić)
