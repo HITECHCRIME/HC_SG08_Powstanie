@@ -65,10 +65,10 @@ ten magnetyzm kiedy w sen zapadam
 w czerni znowu okrąg widzę 
 
 dostęp utnę, szukam prawdy
-własnym sortem, na własną rękę  
-(własnym światłem) 
-
+własnym sortem, na własną rękę (wlasnym sumptem)
 nie dam się zamęczyć
+własnym światłem 
+
 te układy znam swe miejsca, aktywne 
 paradygmaty, racjonalne me zasady
 to powstanie - traci brzemię
