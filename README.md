@@ -63,9 +63,9 @@ czuję zmienne, czujnie bierny
 ten magnetyzm kiedy w sen zapadam 
 w czerni znowu okrąg widzę 
 
-znasz układy swoje miejsca 
-masz zasady racjonalne masz 
-paradygmaty, masz 
+te układy znasz swe miejsca 
+paradygmaty, racjonalne masz zasady
+w tym powstaniu - traci brzemię
 
 widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj(esz) się usadzić (ustawić)
