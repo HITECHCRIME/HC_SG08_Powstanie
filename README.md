@@ -43,40 +43,35 @@ szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
 [VERSE]
-my to bardziej świeża szkoła
-zreflektuj sie i nie wytknij
-w mojej glowie milosc, z zewnątrz 
-demon w twojej glowie nienawisc 
-to forma misji
+my to bardziej świeża szkoła zreflektuj sie
+i nie wytknij w mojej glowie milosc, z zewnątrz 
+demon w twojej glowie nienawisc to forma misji
 yeah
 
 (nowe drogi) nowe drogi
 (dziennie mary) dziennie mary 
 (kodu wstęgi) kodu wstęgi 
 
-to mityczny kod w twej skórze 
-konasz w głębi bezpośredni (to jest) kontakt
+to mityczny kod w twej skórze, konasz w głębi 
+bezpośredni (to jest) kontakt
 cicha nasza hordaaa - da ci lśnienie - 
 
-noc tak szybko się oddala
-świat na nowo zbudowany 
-czuję zmienne
+noc tak szybko się oddala, świat na nowo zbudowany 
+czuję zmienne, czujnie bierny ten magnetyzm 
+kiedy w sen zapadam w czerni znowu okrąg widzę 
 
-ten magnetyzm, 
-kiedy w sen 
-zapadam w czerni 
-znowu okrąg widzę 
+znasz układy swoje miejsca masz zasady 
+racjonalne masz paradygmaty, masz 
 
 widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj(esz) się usadzić (ustawić)
 
+nie daj(esz) się usadzić (ustawić)
+
 nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
 
-znasz układy swoje miejsca
-masz zasady racjonalne masz 
-paradygmaty 
-masz 
+
 
 dostęp utnij, szukaj prawdy
 na własną rękę (własnym światłem)
