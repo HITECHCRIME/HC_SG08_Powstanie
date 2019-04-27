@@ -23,9 +23,9 @@ to jest powstanie // glitches to (translingual theme)
 fucking uprising
 
 [CHORUS]
-co ty myslisz to nie proza 8
+co ty myslisz to nie proza 8 
 wszyscy literaci prysli 8
-_ale mi nie szkoda_, taka kłoda 10
+_ale mi nie szkoda_, taka kłoda 10 
 nie powinie nam się noga 8
 my to raczej _nowa sfora_ 8
 
@@ -43,25 +43,29 @@ szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
 [VERSE]
-my to bardziej świeża szkoła zreflektuj sie
-i nie wytknij w mojej glowie milosc, z zewnątrz 
-demon w twojej glowie nienawisc to forma misji
-yeah
+my to bardziej świeża szkoła 
+zreflektuj sie i nie wytknij 
+w mojej glowie milosc, z zewnątrz 
+demon w twojej glowie nienawisc 
+to forma misji yeah
 
 (nowe drogi) nowe drogi
 (dziennie mary) dziennie mary 
 (kodu wstęgi) kodu wstęgi 
 
-to mityczny kod w twej skórze, konasz w głębi 
-bezpośredni (to jest) kontakt
+to mityczny kod w twej skórze, 
+konasz w głębi, bezpośredni (to jest) kontakt
 cicha nasza hordaaa - da ci lśnienie - 
 
-noc tak szybko się oddala, świat na nowo zbudowany 
-czuję zmienne, czujnie bierny ten magnetyzm 
-kiedy w sen zapadam w czerni znowu okrąg widzę 
+noc tak szybko się oddala, 
+świat na nowo zbudowany 
+czuję zmienne, czujnie bierny 
+ten magnetyzm kiedy w sen zapadam 
+w czerni znowu okrąg widzę 
 
-znasz układy swoje miejsca masz zasady 
-racjonalne masz paradygmaty, masz 
+znasz układy swoje miejsca 
+masz zasady racjonalne masz 
+paradygmaty, masz 
 
 widzisz w przód - jesteś (z) nami 
 czujesz zew - nie daj(esz) się usadzić (ustawić)
