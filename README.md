@@ -67,7 +67,7 @@ w czerni znowu okrąg widzę
 dostęp utnę, szukam prawdy
 własnym sortem, na własną rękę (wlasnym sumptem)
 nie dam się zamęczyć
-własnym światłem 
+własnym światłem  
 
 te układy znam swe miejsca, aktywne 
 paradygmaty, racjonalne me zasady
