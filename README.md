@@ -59,6 +59,7 @@ cicha nasza hordaaa - da ci lśnienie -
 
 noc tak szybko się oddala, 
 świat na nowo zbudowany 
+
 czuję zmienne, czujnie bierny 
 ten magnetyzm kiedy w sen zapadam 
 w czerni znowu okrąg widzę 
