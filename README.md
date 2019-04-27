@@ -49,24 +49,24 @@ w mojej glowie milosc, z zewnątrz
 demon w twojej glowie nienawisc 
 to forma misji yeah
 
-(nowe drogi) nowe drogi
-(dziennie mary) dziennie mary 
-(kodu wstęgi) kodu wstęgi 
-
 to mityczny kod w twej skórze, 
 konasz w głębi, bezpośredni (to jest) kontakt
 cicha nasza hordaaa - da ci lśnienie - 
 
-noc tak szybko się oddala, 
-świat na nowo zbudowany 
+(nowe drogi) nowe drogi
+(dziennie mary) dziennie mary 
+(kodu wstęgi) kodu wstęgi 
+
+noc tak szybko się oddala 
+świat na nowo zbudowany aye
 
 czuję zmienne, czujnie bierny 
 ten magnetyzm kiedy w sen zapadam 
 w czerni znowu okrąg widzę 
 
 dostęp utnę, szukam prawdy
-własnym sortem, na własną rękę,  
-(własnym światłem), 
+własnym sortem, na własną rękę  
+(własnym światłem) 
 
 nie dam się zamęczyć
 te układy znam swe miejsca, aktywne 
