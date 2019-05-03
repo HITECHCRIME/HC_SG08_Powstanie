@@ -43,14 +43,14 @@ szczerosc sobie wepchnij 6
 pociągnij me myśli 9
 
 [VERSE]
-my to bardziej świeża szkoła 
-zreflektuj sie i nie wytknij 
-w mojej glowie milosc, z zewnątrz 
-demon w twojej glowie nienawisc 
-to forma misji yeah
+my to bardziej świeża szkoła (8)
+zreflektuj sie i nie wytknij (8)
+w mojej glowie milosc, z zewnątrz (10)
+demon w twojej glowie nienawisc (10)
+twoja forma misji yeah (6)
 
 to mityczny kod w twej skórze, 
-konasz w głębi, bezpośredni (to jest) kontakt
+konasz w głębi, bezpośredni kontakt (to jest)
 cicha nasza hordaaa - da ci lśnienie - 
 
 (nowe drogi) nowe drogi
