@@ -55,23 +55,26 @@ okrąg widzę, konasz w głębi, bezpośredni kontakt
 nasza cicha hordaaa - da ci lśnienie
 
 senne mary, kodu wstęgi
-noc tak szybko się oddala 
-nowe drogi, nowe drogi
 świat na nowo zbudowany ya
-
-(nowe drogi) nowe drogi
-(dziennie mary) dziennie mary 
-(kodu wstęgi) kodu wstęgi 
-
-te układy znam swe miejsca, aktywne 
-paradygmaty, racjonalne me zasady
-to powstanie - traci brzemię  
 
 widzisz w przód - jesteś (z) nami (widzę w przód - jesteś z nami)
 czujesz zew - nie daj(esz) się usadzić (ustawić) (czuję zew - nie dam się usadzić
 
 nie daj się zamęczyć - trzymaj gardę
 nie toleruj zdrady
+
+(nowe drogi) nowe drogi
+(dziennie mary) dziennie mary 
+(kodu wstęgi) kodu wstęgi 
+
+nowe drogi, nowe drogi
+
+noc tak szybko się oddala 
+te układy znam swe miejsca, aktywne 
+paradygmaty, racjonalne me zasady
+to powstanie - traci brzemię  
+
+
 
 nie daj się usadzić
 to powstanie
