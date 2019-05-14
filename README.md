@@ -47,31 +47,25 @@ my to bardziej świeża szkoła (8)
 zreflektuj sie i nie wytknij (8)
 w mojej glowie milosc, z zewnątrz (10)
 demon w twojej glowie nienawisc (10)
-twoja forma misji yeah (6)
+to forma misji yeah (6)
 
-to mityczny kod w twej skórze, 
-konasz w głębi, bezpośredni kontakt (to jest)
-cicha nasza hordaaa - da ci lśnienie - 
+to mityczny kod w twej skórze
+czujesz jego zmienne kiedy w sen zapadasz
+okrąg widzę, konasz w głębi, bezpośredni kontakt
+nasza cicha hordaaa - da ci lśnienie
+
+senne mary, kodu wstęgi
+noc tak szybko się oddala 
+nowe drogi, nowe drogi
+świat na nowo zbudowany ya
 
 (nowe drogi) nowe drogi
 (dziennie mary) dziennie mary 
 (kodu wstęgi) kodu wstęgi 
 
-noc tak szybko się oddala 
-świat na nowo zbudowany ya
-
-czuję zmienne, czujnie bierny 
-ten magnetyzm kiedy w sen zapadam 
-w czerni znowu okrąg widzę 
-
-dostęp utnę, szukam prawdy
-własnym sortem, na własną rękę (wlasnym sumptem)
-nie dam się zamęczyć
-własnym światłem  
-
 te układy znam swe miejsca, aktywne 
 paradygmaty, racjonalne me zasady
-to powstanie - traci brzemię
+to powstanie - traci brzemię  
 
 widzisz w przód - jesteś (z) nami (widzę w przód - jesteś z nami)
 czujesz zew - nie daj(esz) się usadzić (ustawić) (czuję zew - nie dam się usadzić
@@ -81,6 +75,15 @@ nie toleruj zdrady
 
 nie daj się usadzić
 to powstanie
+
+dostęp utnę, szukam prawdy
+własnym sortem, na własną rękę (wlasnym sumptem)
+nie dam się zamęczyć
+własnym światłem
+
+czuję zmienne, czujnie bierny 
+ten magnetyzm kiedy w sen zapadam
+w czerni znowu okrąg widzę 
 
 [CHORUS]
 co ty myslisz to nie proza 8
